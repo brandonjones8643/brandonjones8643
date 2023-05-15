@@ -1,1 +1,1 @@
-Hi, I’m @brandonjones8643 JS developer, you can reach me at brandonjones.netlify.app :)
+Hi, I’m Brandon you can reach me at brandonjones8643@gmail.com if you need to.
